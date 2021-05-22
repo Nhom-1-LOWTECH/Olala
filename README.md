@@ -1,3 +1,0 @@
-#Nhom 1
-#LOWTECH
-OLALALALALA
